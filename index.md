@@ -51,7 +51,7 @@
 
 * [Quick to Finish: 10 Best Fast Version Cannabis Seeds](https://www.reddit.com/r/SeedsForSale/wiki/fast-version-seeds)
 
-* [Top 5 Purple Cannabis Strains to Grow with Real Purple Buds] (https://www.reddit.com/r/SeedsForSale/wiki/purple-strains)
+* [Top 5 Purple Cannabis Strains to Grow with Real Purple Buds](https://www.reddit.com/r/SeedsForSale/wiki/purple-strains)
 
 * [Top 10 Old-School Cannabis Strains That Are Still Lit AF Today](https://www.reddit.com/r/SeedsForSale/wiki/old-school-strains)
 
